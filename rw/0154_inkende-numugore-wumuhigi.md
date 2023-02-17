@@ -28,7 +28,7 @@ Nuko ba bahungu batatu batangira kugakinisha bavuga bati: "Kajugunye hejuru! Kaj
 Uko abo bahungu batatu bakinaga n'akana k'inkende, nyina yari yihishe mu giti. Yarabarebaga. Yari ifite ubwoba ko ako kana na ko kashoboraga gupfa nk'uko utundi twari twarapfuye.
 
 ##
-Nyuma umugore w'umuhigi yaraje ansanga abana barakina n'akana k'inkende. Arababwira ati, "mwitonde! Nimukampereze mutaza kugatura hasi!"
+Nyuma umugore w'umuhigi yaraje asanga abana baragukina n'akana k'inkende. Arababwira ati, "mwitonde! Nimukampereze mutaza kugatura hasi!"
 
 ##
 Yafashe ako kana k'inkende mu maboko ye maze agasabira umugisha.
