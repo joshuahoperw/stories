@@ -1,7 +1,7 @@
 # Umugabo Muremure Cyane
 
 ##
-Inketo ze nazo zari ngufi.
+Inkweto ze nazo zari ngufi.
 
 ##
 Umuryango nawo wari mugufi.
@@ -10,7 +10,7 @@ Umuryango nawo wari mugufi.
 Igitanda ke nacyo cyari kigufi.
 
 ##
-Igare rye nary ryari rigufi.
+Igare rye naryo ryari rigufi.
 
 ##
 Uyu mugabo yari muremure cyane!
